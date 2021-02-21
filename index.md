@@ -5,9 +5,11 @@
 
 **Basic Professional Sills:** Soft speaking, emotional play card when found spotted, and playing religious card to save himself and maintain good relations with everyone.
 
-****Captured hardly found TRACES,****
+**Captured hardly found TRACES,**
 **Proofs in/with Images,**
+
 --------------------------------------
+
 **INTEL ELEMENT- PROOF FROM RECON NUMBER 01:**
 
 [19th March 2020: Reply to a local lawyer in Pakistan with much less followers and reply on an anti national tweet.](https://user-images.githubusercontent.com/79396075/108618920-d3cf2480-7447-11eb-9eb6-95a8bd10b1d6.jpeg)
